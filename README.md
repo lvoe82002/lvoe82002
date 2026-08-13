@@ -12,11 +12,8 @@
 > 言语的界限意味着世界的界限。言语的界限，即是我的世界界限。
 
  我的站点：
-- 主页：https://zenly-website-2t0.pages.dev/
-
-
-- QQ：2078583352
+ - QQ：2078583352
 - 邮箱：2078583352@qq.com
-
+- 主页：https://zenly-website-2t0.pages.dev/
 
 > “一些碎碎念写在这里。”
