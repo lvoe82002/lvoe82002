@@ -12,7 +12,7 @@
 > 言语的界限意味着世界的界限。言语的界限，即是我的世界界限。
 
  我的站点：
-- 主页：https://zenly‑website‑2t0.pages.dev/
+- 主页：https://zenly-website-2t0.pages.dev/
 
 
 QQ：2078583352
