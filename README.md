@@ -16,7 +16,7 @@
 
 - 邮箱：2078583352@qq.com
 
-- 主页：https://zenlydsp.top
+- 主页：https://www.zenlydsp.top
 
 
 > “一些碎碎念写在这里。”
