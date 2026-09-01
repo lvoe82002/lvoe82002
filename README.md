@@ -14,6 +14,8 @@
  我的站点：
  - QQ： 2078583352
 
+- 微信：zenly
+
 - 邮箱：2078583352@qq.com
 
 - 主页：https://www.zenlydsp.top
